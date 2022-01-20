@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @janice1606
-- 👀 I’m interested in CREATING POWERPOINT PRESENTAION
+- 👀 I’m interested in CREATING POWERPOINT PRESENTATION
 - 🌱 I’m currently learning CANVA
 - 💞️ I’m looking to collaborate on USING CANVA IN PRESENTATION
 - 📫 How to reach me ...
